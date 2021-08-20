@@ -1,12 +1,8 @@
 # Introduction: ORIENTATION OF CRITICAL THEORIES
 
-
-
 > BOSWELL. 'Then, Sir, what is poetry?'
 >
 > JOHNSON. 'Why, Sir, it is much easier to say what it is not. We all know what light is; but it is not easy to tell what it is.'
->
-> 
 >
 > It is the mark of an educated man to look for precision in each class of things just so far as the nature of the subject admits.
 >
