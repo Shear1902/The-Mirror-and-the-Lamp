@@ -30,10 +30,6 @@ Four elements in the total situation of a work of art are discriminated and made
 
 On this framework of artist, work, universe, and audience I wish to spread out various theories for comparison. To emphasize the artificiality of the device, and at the same time make it easier to visualize the analyses, let us arrange the four co-ordinates in a convenient pattern. A triangle will do, with the work of art, the thing to be explained, in the center.
 
-
-
-
-
-
+![avatar](/images/co-ordinates.jpg)
 
 
